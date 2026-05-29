@@ -30,4 +30,3 @@ I read classical literature — Homer, Nabokov, Hesse. I grow cacti.
 
 - 📧 juane.fula@javeriana.edu.co
 - 💼 [LinkedIn](https://www.linkedin.com/in/juan-esteban-fula-rodriguez-0bb534275/)
-- 🐙 [GitHub](https://github.com/JuaneFula)
