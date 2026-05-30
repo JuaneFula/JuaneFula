@@ -22,7 +22,7 @@ I'm looking for a research position where I can keep working at the intersection
 
 ## Beyond the lab
 
-I read classical literature — Homer, Nabokov, Hesse. I grow cacti.
+I read classical literature — Homer, Nabokov, Hesse. I grow cacti and play AOE II.
 
 ---
 
